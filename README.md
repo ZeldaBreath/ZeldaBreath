@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ZeldaBreath
 - 👀 I’m interested in game
-develop- 🌱 I’m currently learning game develop
+- 🌱 I’m currently learning game development
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me 1325571278@qq.com
 
